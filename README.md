@@ -16,4 +16,4 @@ When I’m not coding or curating web content, I dive into my hobbies. I’m a s
 
 Let's connect then - I’m always up for new opportunities, collaborations, or just an interesting conversation!
 
-Lat updated Resume link in: Feb 2026
+[Last updated Resume link in: Feb 2026]
